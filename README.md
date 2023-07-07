@@ -1,0 +1,1 @@
+# churchme-freetrial-setup
